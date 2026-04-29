@@ -11,14 +11,9 @@
 ## Grupo 45
 
 ## 👨‍🎓 Integrantes:
-- <a href="https://www.linkedin.com/company/inova-fusca">Vitorio Stevanatto Compri Paciulo — RM 567895</a>
+Vitorio Stevanatto Compri Paciulo — RM 567895</a>
 
-## 👩‍🏫 Professores:
-### Tutor(a)
-- <a href="https://www.linkedin.com/company/inova-fusca">Leonardo Ruiz Orabona</a>
-
-### Coordenador(a)
-- <a href="https://www.linkedin.com/company/inova-fusca">André Godoi Chiovato</a>
+## Link do vídeo:
 
 ## 📜 Descrição
 
